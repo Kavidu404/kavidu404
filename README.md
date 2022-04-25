@@ -1,6 +1,6 @@
 #  W E L C O M E <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">
 ## K A V I D U  R A S A N J A N A            
-( I N D I A 🇮🇳 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
+( S R I L A N K A 🇱🇰 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
  
 <p align="center"><a href="https://github.com/kavidu404"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="kavidu404">
 <p align="center"><a href="https://wa.me/17087220306"><img title="whatsapp" src="https://img.shields.io/badge/Whatsapp-black?style=for-the-badge&logo=whatsapp"></a>
